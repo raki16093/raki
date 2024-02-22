@@ -2,9 +2,6 @@ cdzcX
 ghjhgjcgn
 ghcchfthxtf
 csdsdas
-vxcvxzc
-vmhnhcgng
-ggrdgrg
-gth
-gdrhfthdtr
-ytuut
+vxcv
+hjghgh.j
+hjhkhk.
